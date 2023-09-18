@@ -1,2 +1,2 @@
 # yasmin
-14 anos
+oi, eu tenho 14 anos, moro em tibagi, e sou casada.
